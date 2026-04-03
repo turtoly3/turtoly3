@@ -1,6 +1,6 @@
 ## about me.
 
-**hello there!** know me online as bart bash/bart bash' 5827th fan!
+**hello there!** know me online as bart bash/bart bash' 5827th fan/anonymous/or any!
 
 i don't really *do* much on github *(i'm really just starting out)* but i will plan to upload small projects i do work on! expect those later on.
 
